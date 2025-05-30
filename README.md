@@ -1,1 +1,7 @@
-# Sanjana77636.github.io
+# Academics
+
+# Projects and Internships
+
+#Technical Skills
+
+# Contact Details
