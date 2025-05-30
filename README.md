@@ -2,6 +2,6 @@
 
 # Projects and Internships
 
-#Technical Skills
+# Technical Skills
 
 # Contact Details
